@@ -1,4 +1,4 @@
-
+Bartender for macOS professional Tool - file-indexing and quick-launch offers the most advanced Bartender for macOS tool, with file-indexing and quick-launch. Ideal for macOS
 
 
 
